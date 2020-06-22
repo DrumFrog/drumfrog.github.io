@@ -9,3 +9,5 @@ Er ist mit der extrovertierten Schweine-Dame Ms. Piggy liiert und wird ist stän
 * grün
 * nervös
 * laut
+
+> Applaus, Applaus, Applaus!!!
