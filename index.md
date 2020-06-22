@@ -11,3 +11,5 @@ Er ist mit der extrovertierten Schweine-Dame Ms. Piggy liiert und wird ist stän
 * laut
 
 > Applaus, Applaus, Applaus!!!
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/4/48/Airmen_of_Note_with_Kermit_the_Frog_%286602099433%29_%28cropped%29.jpg">
